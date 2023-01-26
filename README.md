@@ -2,7 +2,8 @@
 
 
 
-Go through Static pile of monsters lol.
+Go through a [Static pile of monsters](https://qliqsee.github.io/Monsters-Rolodex/)...
+
 
 
 
